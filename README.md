@@ -1,2 +1,0 @@
-# file-C-Users-Eduardo-20Carvalho-Downloads-Plano_Protecao_Premium_reorganizado.html
-Plano_Protecao_Premium_reorganizado.html
